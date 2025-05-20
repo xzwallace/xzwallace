@@ -1,4 +1,4 @@
-## Seja Bem Vindo ao eu perfil! 🧙‍♂️
+## Seja Bem Vindo ao meu perfil! 🧙‍♂️
 
 Meu nome é Wallace Cardoso Mayer
 
